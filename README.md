@@ -1,1 +1,1 @@
-Yo mamma is so fat you feed on her junk
+Yo mamma so fat her nickname is just DAMN
