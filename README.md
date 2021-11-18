@@ -1,1 +1,1 @@
-Yo mamma so fat not even Dora can explore her
+Yo mamma so fat she don't fit in this joke
