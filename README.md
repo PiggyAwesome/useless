@@ -1,1 +1,1 @@
-Yo mamma so fat I took a picture of her last Christmas and its still printing
+Yo mamma so fat that when she died, she ended world hunger.
