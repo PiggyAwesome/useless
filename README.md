@@ -1,1 +1,1 @@
-Yo mamma is so fat if she buys a fur coat, a species will be extinct.
+Yo mamma so fat she broke your family tree.
