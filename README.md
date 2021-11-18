@@ -1,1 +1,1 @@
-Yo mamma is so fat people thought her butt hole was a black hole.
+Yo mamma so fat, her stomach gets home 15 minutes before she does.
