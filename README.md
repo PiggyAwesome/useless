@@ -1,1 +1,1 @@
-Yo mamma so fat when she got hit by a bus she said who threw that rock
+Yo mamma so fat her IUD picks up radio free Europe
