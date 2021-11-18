@@ -1,1 +1,1 @@
-Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
+Yo mamma is so fat, that when she steps on a scale it says to be continued.
