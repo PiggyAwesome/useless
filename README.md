@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died, she ended world hunger.
+Yo mamma so fat she has more rolls than a bakery
