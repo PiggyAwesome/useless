@@ -1,1 +1,1 @@
-Yo mamma so fat Bill Gates couldn't pay for her liposuction
+Yo mamma so fat she sat on the beach and Greenpeace threw her in.
