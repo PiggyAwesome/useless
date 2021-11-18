@@ -1,1 +1,1 @@
-Yo mamma so fat, her stomach gets home 15 minutes before she does.
+Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
