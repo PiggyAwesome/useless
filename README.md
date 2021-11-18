@@ -1,1 +1,1 @@
-Yo mamma so fat when she got hit by a bus she said who threw that rock
+Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
