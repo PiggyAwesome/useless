@@ -1,1 +1,1 @@
-Yo mamma so fat Mount Everest tried to climb her
+Yo mamma so fat that when she died, she ended world hunger.
