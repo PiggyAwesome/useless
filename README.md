@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on the beach and Greenpeace threw her in.
+Yo mamma so fat when she walked across the street, someone said,"Hey, the wooly mammoths are back!!"
