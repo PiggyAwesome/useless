@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on a rainbow and popped Skittles out
+Yo mamma is so fat when I said release the Kraken, your mom came
