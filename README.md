@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes swimming the whales start singing We are Family
+Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
