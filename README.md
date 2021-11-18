@@ -1,1 +1,1 @@
-Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
+Yo mamma so fat you have to grease the door frame and hold a twinkie on the other side just to get her through.
