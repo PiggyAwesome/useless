@@ -1,1 +1,1 @@
-Yo mamma so fat when she tossed in her sleep she woke up in another time zone
+Yo mamma so fat everytime she turns around its her birthday
