@@ -1,1 +1,1 @@
-Yo mamma so fat she broke your family tree.
+Yo mamma so fat that when she died, she ended world hunger.
