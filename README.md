@@ -1,1 +1,1 @@
-Yo mamma so fat everytime she turns around its her birthday
+Yo mamma so fat that when she died she broke the stairway to heaven
