@@ -1,1 +1,1 @@
-Yo mamma is so fat, Fat Albert was even scared of her.
+Yo mamma so fat when she walked across the street, someone said,"Hey, the wooly mammoths are back!!"
