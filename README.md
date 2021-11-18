@@ -1,1 +1,1 @@
-Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
+Yo mamma so fat when she went to the movies she sat by everybody
