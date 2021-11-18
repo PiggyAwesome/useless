@@ -1,1 +1,1 @@
-Yo mamma so fat when she tossed in her sleep she woke up in another time zone
+Yo mamma so fat when she dances at a concert the whole band skips.
