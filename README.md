@@ -1,1 +1,1 @@
-Yo mamma so fat everytime she turns around its her birthday
+Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
