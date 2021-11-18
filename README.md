@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died, she ended world hunger.
+Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
