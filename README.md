@@ -1,1 +1,1 @@
-Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
+Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
