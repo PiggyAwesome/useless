@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to the movies she sat by everybody
+Yo mamma so fat when she tossed in her sleep she woke up in another time zone
