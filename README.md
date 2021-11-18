@@ -1,1 +1,1 @@
-Yo mamma is so fat she can be my bear
+Yo mamma is so fat when she jumped in the air she got stuck
