@@ -1,1 +1,1 @@
-Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
+Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
