@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes camping the bears hide their food
+Yo mamma is so fat when I said release the Kraken, your mom came
