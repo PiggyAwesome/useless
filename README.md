@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to the movies she sat by everybody
+Yo mamma is so fat that she uses the Great Wall of China as a belt
