@@ -1,1 +1,1 @@
-Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
+Yo mamma so fat Bill Gates couldn't pay for her liposuction
