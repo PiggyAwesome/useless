@@ -1,1 +1,1 @@
-Yo mamma is so fat, that when she steps on a scale it says to be continued.
+Yo mamma so fat when she tossed in her sleep she woke up in another time zone
