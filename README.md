@@ -1,1 +1,1 @@
-Yo mamma so fat not even Dora can explore her
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
