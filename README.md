@@ -1,1 +1,1 @@
-Yo mamma is so fat when I said release the Kraken, your mom came
+Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
