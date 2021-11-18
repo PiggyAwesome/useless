@@ -1,1 +1,1 @@
-Yo mamma so fat, it takes her two trips to haul ass
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
