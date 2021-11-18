@@ -1,1 +1,1 @@
-Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
+Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
