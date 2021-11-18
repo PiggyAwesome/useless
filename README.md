@@ -1,1 +1,1 @@
-Yo mamma is so fat people thought her butt hole was a black hole.
+Yo mamma so fat when she went to McDonalds they offered her a group discount
