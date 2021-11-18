@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
+Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
