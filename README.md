@@ -1,1 +1,1 @@
-Yo mamma so fat not even Dora can explore her
+Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
