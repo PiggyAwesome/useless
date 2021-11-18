@@ -1,1 +1,1 @@
-Yo mamma so fat I had to take a train and two buses just to get on the her good side.
+Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
