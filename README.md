@@ -1,1 +1,1 @@
-Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
