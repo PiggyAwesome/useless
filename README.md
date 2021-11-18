@@ -1,1 +1,1 @@
-Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
+Yo mamma is so fat she has to write an apology letter to Japan
