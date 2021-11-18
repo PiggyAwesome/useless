@@ -1,1 +1,1 @@
-Yo mamma so fat when she tossed in her sleep she woke up in another time zone
+Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
