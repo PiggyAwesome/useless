@@ -1,1 +1,1 @@
-Yo mamma so fat, that the Twinkies revolve around her.
+Yo mamma is so fat, Fat Albert was even scared of her.
