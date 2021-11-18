@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
+Yo mamma so fat she got a parking ticket for standing at a crosswalk
