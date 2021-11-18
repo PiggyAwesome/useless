@@ -1,1 +1,1 @@
-Yo mamma is so fat you feed on her junk
+Yo mamma so fat they changed one size fits all to one size fits most
