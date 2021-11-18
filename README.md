@@ -1,1 +1,1 @@
-Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
+Yo mamma so fat not even a Twinkie would get her off the couch, even while a crane tries to help her
