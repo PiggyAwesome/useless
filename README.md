@@ -1,1 +1,1 @@
-Yo mamma is so fat her blood type is Ragu
+Yo mamma so fat not even Dora can explore her
