@@ -1,1 +1,1 @@
-Yo mamma so fat people keep pushing her in the water at the beach so she won't die
+Yo mamma is so fat every time she sits down they add another country to the map
