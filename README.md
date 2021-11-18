@@ -1,1 +1,1 @@
-Yo mamma so fat her nickname is just DAMN
+Yo mamma so fat, it takes her two trips to haul ass
