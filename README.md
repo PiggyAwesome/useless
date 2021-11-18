@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes camping the bears hide their food
+Yo mamma so fat when she burped New Orlean thought Katrina came back to finish the job
