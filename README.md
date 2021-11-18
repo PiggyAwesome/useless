@@ -1,1 +1,1 @@
-Yo mamma is so fat her blood type is Ragu
+Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
