@@ -1,1 +1,1 @@
-Yo mamma so fat she got a parking ticket for standing at a crosswalk
+Yo mamma is so fat every time she sits down they add another country to the map
