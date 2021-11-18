@@ -1,1 +1,1 @@
-Yo mamma so fat, it takes her two trips to haul ass
+Yo mamma so fat when she stepped on a scale Buzz Lightyear came out and said infinity and beyond!
