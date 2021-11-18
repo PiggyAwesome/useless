@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes camping the bears hide their food
+Yo mamma so fat when she got hit by a bus she said who threw that rock
