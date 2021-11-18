@@ -1,1 +1,1 @@
-Yo mamma so fat God could not even lift her spirt
+Yo mamma is so fat people thought her butt hole was a black hole.
