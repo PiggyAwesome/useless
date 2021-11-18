@@ -1,1 +1,1 @@
-Yo mamma is so fat she can be my bear
+Yo mamma so fat everytime she turns around its her birthday
