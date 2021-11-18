@@ -1,1 +1,1 @@
-Yo mamma so fat she's on both sides the family
+Yo mamma is so fat, Fat Albert was even scared of her.
