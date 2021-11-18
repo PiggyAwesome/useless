@@ -1,1 +1,1 @@
-Yo mamma so fat, it takes her two trips to haul ass
+Yo mamma is so fat when I said release the Kraken, your mom came
