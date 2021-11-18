@@ -1,1 +1,1 @@
-Yo mamma so fat she has more rolls than a bakery
+Yo mamma so fat she sat on the beach and Greenpeace threw her in.
