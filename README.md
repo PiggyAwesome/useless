@@ -1,1 +1,1 @@
-Yo mamma so fat she leaves footsteps in concrete
+Yo mamma so fat she has more rolls than a bakery
