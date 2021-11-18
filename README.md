@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes camping the bears hide their food
+Yo mamma is so fat if she buys a fur coat, a species will be extinct.
