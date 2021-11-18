@@ -1,1 +1,1 @@
-Yo mamma is so fat when she jumped in the air she got stuck
+Yo mamma so fat that when she died, she ended world hunger.
