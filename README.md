@@ -1,1 +1,1 @@
-Yo mamma so fat she has more rolls than a bakery
+Yo mamma so fat people keep pushing her in the water at the beach so she won't die
