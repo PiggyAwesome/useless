@@ -1,1 +1,1 @@
-Yo mamma so fat you have to grease the door frame and hold a twinkie on the other side just to get her through.
+Yo mamma so fat not even a Twinkie would get her off the couch, even while a crane tries to help her
