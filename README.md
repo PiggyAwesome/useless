@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to her wedding the people sang the song "here comes the bride so fat and wide"
+Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
