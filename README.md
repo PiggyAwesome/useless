@@ -1,1 +1,1 @@
-Yo mamma so fat, that the Twinkies revolve around her.
+Yo mamma so fat God could not even lift her spirt
