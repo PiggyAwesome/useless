@@ -1,1 +1,1 @@
-Yo mamma so fat when she dances at a concert the whole band skips.
+Yo mamma is so fat a truck hit her and she said, Hey who threw that rock?
