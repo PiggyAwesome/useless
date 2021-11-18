@@ -1,1 +1,1 @@
-Yo mamma is so fat a truck hit her and she said, Hey who threw that rock?
+Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
