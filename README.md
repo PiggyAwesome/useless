@@ -1,1 +1,1 @@
-Yo mamma is so fat people thought her butt hole was a black hole.
+Yo mamma is so fat when she fell in love, she broke it.
