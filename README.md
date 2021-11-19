@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on the scale and it said one person at the time
+Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
