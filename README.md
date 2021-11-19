@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died, she ended world hunger.
+Yo mamma so fat she don't fit in this joke
