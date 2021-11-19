@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to McDonalds they offered her a group discount
+Yo mamma so fat it aint funny
