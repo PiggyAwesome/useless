@@ -1,1 +1,1 @@
-Yo mamma is so fat you feed on her junk
+Yo mamma so fat that when she died she broke the stairway to heaven
