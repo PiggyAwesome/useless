@@ -1,1 +1,1 @@
-Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
+Yo mamma so fat they changed one size fits all to one size fits most
