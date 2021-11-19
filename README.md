@@ -1,1 +1,1 @@
-Yo mamma is so fat when she jumped in the air she got stuck
+Yo mamma so fat when she went to her wedding the people sang the song "here comes the bride so fat and wide"
