@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on the scale and it said one person at the time
+Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
