@@ -1,1 +1,1 @@
-Yo mamma is so fat when she jumped in the air she got stuck
+Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
