@@ -1,1 +1,1 @@
-Yo mamma so fat, I got lost after running around her.
+Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
