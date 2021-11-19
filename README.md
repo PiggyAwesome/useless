@@ -1,1 +1,1 @@
-Yo mamma so fat that when she sits around the house, she sits around the house.
+Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
