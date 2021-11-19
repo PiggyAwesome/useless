@@ -1,1 +1,1 @@
-Yo mamma so fat she fell in a whirlpool and got stuck
+Yo mamma so fat, I got lost after running around her.
