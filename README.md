@@ -1,1 +1,1 @@
-Yo mamma so fat when she dances at a concert the whole band skips.
+Yo mamma so fat when she goes camping the bears hide their food
