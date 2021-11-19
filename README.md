@@ -1,1 +1,1 @@
-Yo mamma so fat when she wears one of those X jackets, helicopters try to land on her.
+Yo mamma so fat you have to grease the door frame and hold a twinkie on the other side just to get her through.
