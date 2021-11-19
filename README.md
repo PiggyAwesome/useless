@@ -1,1 +1,1 @@
-Yo mamma so fat when she got hit by a bus she said who threw that rock
+Yo mamma is so fat every time she sits down they add another country to the map
