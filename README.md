@@ -1,1 +1,1 @@
-Yo mamma so fat her belly button got home 30 minutes before she did
+Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
