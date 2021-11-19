@@ -1,1 +1,1 @@
-Yo mamma so fat, her stomach gets home 15 minutes before she does.
+Yo mamma is so fat when I said release the Kraken, your mom came
