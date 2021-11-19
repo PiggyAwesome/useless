@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on the beach and Greenpeace threw her in.
+Yo mamma is so fat a truck hit her and she said, Hey who threw that rock?
