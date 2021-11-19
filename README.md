@@ -1,1 +1,1 @@
-Yo mamma is so fat when she farted it was the end of the world
+Yo mamma is so fat people called her a wild hog
