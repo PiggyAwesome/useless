@@ -1,1 +1,1 @@
-Yo mamma so fat it aint funny
+Yo mamma so fat when she fell no one laughed but the ground started cracking up
