@@ -1,1 +1,1 @@
-Yo mamma so fat I took a picture of her last Christmas and its still printing
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
