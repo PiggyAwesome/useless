@@ -1,1 +1,1 @@
-Yo mamma so fat she doesn't need the internet; she's already world wide
+Yo mamma is so fat she can be my bear
