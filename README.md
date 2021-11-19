@@ -1,1 +1,1 @@
-Yo mamma is so fat, that when she steps on a scale it says to be continued.
+Yo mamma so fat she sat on a quarter and a booger shot out of George Washington's nose.
