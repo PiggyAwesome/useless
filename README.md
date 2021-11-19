@@ -1,1 +1,1 @@
-Yo mamma so fat not even a Twinkie would get her off the couch, even while a crane tries to help her
+Yo mamma so fat her IUD picks up radio free Europe
