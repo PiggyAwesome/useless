@@ -1,1 +1,1 @@
-Yo mamma so fat her nickname is just DAMN
+Yo mamma so fat she sat on the beach and Greenpeace threw her in.
