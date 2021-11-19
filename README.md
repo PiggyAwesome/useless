@@ -1,1 +1,1 @@
-Yo mamma so fat they changed one size fits all to one size fits most
+Yo mamma so fat her IUD picks up radio free Europe
