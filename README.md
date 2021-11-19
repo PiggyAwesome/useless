@@ -1,1 +1,1 @@
-Yo mamma so fat she wore a yellow raincoat and people yelled Taxi!
+Yo mamma so fat she's got more Chins than a Hong Kong phone book.
