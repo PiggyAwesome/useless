@@ -1,1 +1,1 @@
-Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
+Yo mamma is so fat that on halloween she says trick or meatloaf
