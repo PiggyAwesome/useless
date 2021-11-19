@@ -1,1 +1,1 @@
-Yo mamma so fat I took a picture of her last Christmas and its still printing
+Yo mamma is so fat, Fat Albert was even scared of her.
