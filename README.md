@@ -1,1 +1,1 @@
-Yo mamma so fat they changed one size fits all to one size fits most
+Yo mamma so fat when she made a YouTube account the entire network crashed.
