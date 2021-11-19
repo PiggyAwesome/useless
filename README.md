@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to McDonalds they offered her a group discount
+Yo mamma so fat everytime she turns around its her birthday
