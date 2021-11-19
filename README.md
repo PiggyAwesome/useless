@@ -1,1 +1,1 @@
-Yo mamma is so fat that Weight Watchers said I give up
+Yo mamma so fat that when she was born, she gave the hospital stretch marks.
