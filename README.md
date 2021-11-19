@@ -1,1 +1,1 @@
-Yo mamma so fat when she fell no one laughed but the ground started cracking up
+Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
