@@ -1,1 +1,1 @@
-Yo mamma is so fat when she fell in love, she broke it.
+Yo mamma so fat I had to take a train and two buses just to get on the her good side.
