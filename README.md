@@ -1,1 +1,1 @@
-Yo mamma so fat she died
+Yo mamma so fat the last time she saw 90210 was on a scale
