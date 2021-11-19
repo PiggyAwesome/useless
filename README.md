@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on the beach and Greenpeace threw her in.
+Yo mamma so fat her belly button got home 30 minutes before she did
