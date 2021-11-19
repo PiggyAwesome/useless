@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on a Nintendo Gamecube and turned it into a Gameboy
+Yo mamma so fat Bill Gates couldn't pay for her liposuction
