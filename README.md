@@ -1,1 +1,1 @@
-Yo mamma is so fat were in her right now
+Yo mamma so fat everytime she turns around its her birthday
