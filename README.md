@@ -1,1 +1,1 @@
-Yo mamma so fat when she dances at a concert the whole band skips.
+Yo mamma so fat when she gets cut she bleeds gravy
