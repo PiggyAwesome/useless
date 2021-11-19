@@ -1,1 +1,1 @@
-Yo mamma so fat, I got lost after running around her.
+Yo mamma so fat she sat on the beach and Greenpeace threw her in.
