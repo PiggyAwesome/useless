@@ -1,1 +1,1 @@
-Yo mamma is so fat people thought her butt hole was a black hole.
+Yo mamma so fat she got a parking ticket for standing at a crosswalk
