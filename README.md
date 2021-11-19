@@ -1,1 +1,1 @@
-Yo mamma is so fat people called her a wild hog
+Yo mamma is so fat, that when she steps on a scale it says to be continued.
