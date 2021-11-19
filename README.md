@@ -1,1 +1,1 @@
-Yo mamma so fat she's on both sides the family
+Yo mamma is so fat if she buys a fur coat, a species will be extinct.
