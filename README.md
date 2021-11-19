@@ -1,1 +1,1 @@
-Yo mamma is so fat a truck hit her and she said, Hey who threw that rock?
+Yo mamma so fat the only alphabet she knows is her KFC's
