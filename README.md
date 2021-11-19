@@ -1,1 +1,1 @@
-Yo mamma is so fat her blood type is Ragu
+Yo mamma so fat she sat on a rainbow and popped Skittles out
