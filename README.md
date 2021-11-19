@@ -1,1 +1,1 @@
-Yo mamma so fat everytime she turns around its her birthday
+Yo mamma so fat she sat on Wal-Mart and lowered the prices
