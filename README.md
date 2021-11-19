@@ -1,1 +1,1 @@
-Yo mamma so fat she got a parking ticket for standing at a crosswalk
+Yo mamma is so fat, Fat Albert was even scared of her.
