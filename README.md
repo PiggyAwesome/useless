@@ -1,1 +1,1 @@
-Yo mamma so fat the last time she saw 90210 was on a scale
+Yo mamma so fat I took a picture of her last Christmas and its still printing
