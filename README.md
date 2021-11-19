@@ -1,1 +1,1 @@
-Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
+Yo mamma is so fat if she buys a fur coat, a species will be extinct.
