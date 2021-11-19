@@ -1,1 +1,1 @@
-Yo mamma so fat, you could slap her butt and ride the waves.
+Yo mamma so fat I had to take a train and two buses just to get on the her good side.
