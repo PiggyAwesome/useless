@@ -1,1 +1,1 @@
-Yo mamma so fat, I got lost after running around her.
+Yo mamma so fat, her stomach gets home 15 minutes before she does.
