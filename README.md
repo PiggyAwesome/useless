@@ -1,1 +1,1 @@
-Yo mamma so fat, her stomach gets home 15 minutes before she does.
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
