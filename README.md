@@ -1,1 +1,1 @@
-Yo mamma so fat the last time she saw 90210 was on a scale
+Yo mamma so fat she sat on Wal-Mart and lowered the prices
