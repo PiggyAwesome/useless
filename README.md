@@ -1,1 +1,1 @@
-Yo mamma so fat when she burped New Orlean thought Katrina came back to finish the job
+Yo mamma so fat her IUD picks up radio free Europe
