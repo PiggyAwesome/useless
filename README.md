@@ -1,1 +1,1 @@
-Yo mamma is so fat her blood type is Ragu
+Yo mamma so fat she sat on a quarter and a booger shot out of George Washington's nose.
