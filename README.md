@@ -1,1 +1,1 @@
-Yo mamma is so fat, her diet pills say M & M
+Yo mamma so fat when she got hit by a bus she said who threw that rock
