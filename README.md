@@ -1,1 +1,1 @@
-Yo mamma so fat that she fell over and rocked herself to sleep trying to get up
+Yo mamma so fat when she went to McDonalds they offered her a group discount
