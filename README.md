@@ -1,1 +1,1 @@
-Yo mamma so fat her beeper went off and people thought she was backing up.
+Yo mamma so fat not even a Twinkie would get her off the couch, even while a crane tries to help her
