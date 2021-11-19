@@ -1,1 +1,1 @@
-Yo mamma is so fat when she farted it was the end of the world
+Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
