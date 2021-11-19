@@ -1,1 +1,1 @@
-Yo mamma is so fat that Weight Watchers said I give up
+Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
