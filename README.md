@@ -1,1 +1,1 @@
-Yo mamma so fat she died
+Yo mamma so fat when she stepped on the scale it came up with my phone number
