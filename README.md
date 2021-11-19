@@ -1,1 +1,1 @@
-Yo mamma so fat she wore a yellow raincoat and people yelled Taxi!
+Yo mamma so fat her belly button got home 30 minutes before she did
