@@ -1,1 +1,1 @@
-Yo mamma is so fat every time she tries to hide she is hiding that object that she is trying to hide by
+Yo mamma so fat she's got more Chins than a Hong Kong phone book.
