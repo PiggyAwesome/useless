@@ -1,1 +1,1 @@
-Yo mamma so fat Mount Everest tried to climb her
+Yo mamma so fat she sat on Wal-Mart and lowered the prices
