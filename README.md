@@ -1,1 +1,1 @@
-Yo mamma so fat she went to japan and Godzilla said DAMN and ran away.
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
