@@ -1,1 +1,1 @@
-Yo mamma so fat when she fell no one laughed but the ground started cracking up
+Yo mamma so fat that when she sits around the house, she sits around the house.
