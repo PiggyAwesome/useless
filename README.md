@@ -1,1 +1,1 @@
-Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
+Yo mamma so fat Mount Everest tried to climb her
