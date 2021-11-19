@@ -1,1 +1,1 @@
-Yo mamma is so fat when I said release the Kraken, your mom came
+Yo mamma so fat her beeper went off and people thought she was backing up.
