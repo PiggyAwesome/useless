@@ -1,1 +1,1 @@
-Yo mamma so fat you have to grease the door frame and hold a twinkie on the other side just to get her through.
+Yo mamma so fat her beeper went off and people thought she was backing up.
