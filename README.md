@@ -1,1 +1,1 @@
-Yo mamma so fat when she fell no one laughed but the ground started cracking up
+Yo mamma so fat when she got hit by a bus she said who threw that rock
