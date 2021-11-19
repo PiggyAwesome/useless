@@ -1,1 +1,1 @@
-Yo mamma so fat she died
+Yo mamma so fat, her stomach gets home 15 minutes before she does.
