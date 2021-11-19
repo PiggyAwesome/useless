@@ -1,1 +1,1 @@
-Yo mamma is so fat when she fell in love, she broke it.
+Yo mamma so fat when she made a YouTube account the entire network crashed.
