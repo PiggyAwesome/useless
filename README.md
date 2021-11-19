@@ -1,1 +1,1 @@
-Yo mamma so fat, I got lost after running around her.
+Yo mamma is so fat that she uses the Great Wall of China as a belt
