@@ -1,1 +1,1 @@
-Yo mamma so fat, that the Twinkies revolve around her.
+Yo mamma is so fat if she buys a fur coat, a species will be extinct.
