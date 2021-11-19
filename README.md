@@ -1,1 +1,1 @@
-Yo mamma so fat she died
+Yo mamma is so fat that Weight Watchers said I give up
