@@ -1,1 +1,1 @@
-Yo mamma so fat the last time she saw 90210 was on a scale
+Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
