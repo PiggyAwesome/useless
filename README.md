@@ -1,1 +1,1 @@
-Yo mamma so fat her belly button got home 30 minutes before she did
+Yo mamma so fat, you could slap her butt and ride the waves.
