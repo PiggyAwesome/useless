@@ -1,1 +1,1 @@
-Yo mamma so fat she broke your family tree.
+Yo mamma so fat she died
