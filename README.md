@@ -1,1 +1,1 @@
-Yo mamma so fat she's got more Chins than a Hong Kong phone book.
+Yo mamma so fat the last time she saw 90210 was on a scale
