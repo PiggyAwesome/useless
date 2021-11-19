@@ -1,1 +1,1 @@
-Yo mamma so fat she broke your family tree.
+Yo mamma so fat when she wears one of those X jackets, helicopters try to land on her.
