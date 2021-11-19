@@ -1,1 +1,1 @@
-Yo mamma so fat when she gets cut she bleeds gravy
+Yo mamma so fat when she goes swimming the whales start singing We are Family
