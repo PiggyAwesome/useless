@@ -1,1 +1,1 @@
-Yo mamma so fat she has more rolls than a bakery
+Yo mamma so fat when she got hit by a bus she said who threw that rock
