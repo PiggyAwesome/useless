@@ -1,1 +1,1 @@
-Yo mamma so fat that when she walked by the TV set I missed 3 seasons of Laguna Beach
+Yo mamma so fat she fell in a whirlpool and got stuck
