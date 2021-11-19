@@ -1,1 +1,1 @@
-Yo mamma so fat it aint funny
+Yo mamma so fat when she gets cut she bleeds gravy
