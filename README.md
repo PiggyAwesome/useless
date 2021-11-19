@@ -1,1 +1,1 @@
-Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
+Yo mamma so fat when God said let it be light he told your mamma to move
