@@ -1,1 +1,1 @@
-Yo mamma is so fat people called her a wild hog
+Yo mamma so fat when she stepped on the scale it came up with my phone number
