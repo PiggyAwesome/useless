@@ -1,1 +1,1 @@
-Yo mamma is so fat, her diet pills say M & M
+Yo mamma so fat she sat on a quarter and a booger shot out of George Washington's nose.
