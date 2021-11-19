@@ -1,1 +1,1 @@
-Yo mamma so fat, you could slap her butt and ride the waves.
+Yo mamma so fat Mount Everest tried to climb her
