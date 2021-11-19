@@ -1,1 +1,1 @@
-Yo mamma so fat that when she sits around the house, she sits around the house.
+Yo mamma is so fat every time she tries to hide she is hiding that object that she is trying to hide by
