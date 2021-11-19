@@ -1,1 +1,1 @@
-Yo mamma so fat her belly button got home 30 minutes before she did
+Yo mamma so fat Bill Gates couldn't pay for her liposuction
