@@ -1,1 +1,1 @@
-Yo mamma so fat she got a parking ticket for standing at a crosswalk
+Yo mamma so fat she stepped on a Nintendo Gamecube and turned it into a Gameboy
