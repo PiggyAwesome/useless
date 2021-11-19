@@ -1,1 +1,1 @@
-Yo mamma so fat she went to japan and Godzilla said DAMN and ran away.
+Yo mamma so fat, that the Twinkies revolve around her.
