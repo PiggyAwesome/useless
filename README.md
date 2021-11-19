@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on Wal-Mart and lowered the prices
+Yo mamma is so fat when she jumped in the air she got stuck
