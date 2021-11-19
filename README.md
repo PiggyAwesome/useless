@@ -1,1 +1,1 @@
-Yo mamma is so fat her blood type is Ragu
+Yo mamma so fat the last time she saw 90210 was on a scale
