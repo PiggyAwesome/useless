@@ -1,1 +1,1 @@
-Yo mamma so fat when she gets cut she bleeds gravy
+Yo mamma is so fat people called her a wild hog
