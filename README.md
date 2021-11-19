@@ -1,1 +1,1 @@
-Yo mamma so fat she doesn't need the internet; she's already world wide
+Yo mamma so fat when God said let it be light he told your mamma to move
