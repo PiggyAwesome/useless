@@ -1,1 +1,1 @@
-Yo mamma so fat her IUD picks up radio free Europe
+Yo mamma so fat when she goes swimming the whales start singing We are Family
