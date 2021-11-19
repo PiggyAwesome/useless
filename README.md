@@ -1,1 +1,1 @@
-Yo mamma so fat her belly button got home 30 minutes before she did
+Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
