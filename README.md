@@ -1,1 +1,1 @@
-Yo mamma so fat she don't fit in this joke
+Yo mamma so fat she fell in a whirlpool and got stuck
