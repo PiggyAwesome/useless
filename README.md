@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on a rainbow and popped Skittles out
+Yo mamma so fat she went to japan and Godzilla said DAMN and ran away.
