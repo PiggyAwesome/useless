@@ -1,1 +1,1 @@
-Yo mamma so fat Mount Everest tried to climb her
+Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
