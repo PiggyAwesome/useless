@@ -1,1 +1,1 @@
-Yo mamma is so fat when she fell in love, she broke it.
+Yo mamma is so fat a truck hit her and she said, Hey who threw that rock?
