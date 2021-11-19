@@ -1,1 +1,1 @@
-Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
+Yo mamma is so fat that the recursive function calculating her mass causes a stack overflow
