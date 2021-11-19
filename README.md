@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died she broke the stairway to heaven
+Yo mamma is so fat were in her right now
