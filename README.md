@@ -1,1 +1,1 @@
-Yo mamma so fat when she stepped on a scale Buzz Lightyear came out and said infinity and beyond!
+Yo mamma so fat when she got hit by a bus she said who threw that rock
