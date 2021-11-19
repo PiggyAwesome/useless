@@ -1,1 +1,1 @@
-Yo mamma is so fat if she buys a fur coat, a species will be extinct.
+Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
