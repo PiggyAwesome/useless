@@ -1,1 +1,1 @@
-Yo mamma so fat when she jogs she leaves pot holes
+Yo mamma so fat she leaves footsteps in concrete
