@@ -1,1 +1,1 @@
-Yo mamma is so fat people called her a wild hog
+Yo mamma so fat when she fell no one laughed but the ground started cracking up
