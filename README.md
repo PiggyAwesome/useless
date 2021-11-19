@@ -1,1 +1,1 @@
-Yo mamma is so fat if she buys a fur coat, a species will be extinct.
+Yo mamma so fat not even a Twinkie would get her off the couch, even while a crane tries to help her
