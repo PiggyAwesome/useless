@@ -1,1 +1,1 @@
-Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
+Yo mamma so fat I took a picture of her last Christmas and its still printing
