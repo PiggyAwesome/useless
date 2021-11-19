@@ -1,1 +1,1 @@
-Yo mamma so fat when she dances at a concert the whole band skips.
+Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
