@@ -1,1 +1,1 @@
-Yo mamma so fat, you could slap her butt and ride the waves.
+Yo mamma is so fat when she fell in love, she broke it.
