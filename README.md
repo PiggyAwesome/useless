@@ -1,1 +1,1 @@
-Yo mamma is so fat that Weight Watchers said I give up
+Yo mamma so fat when she stepped on a scale Buzz Lightyear came out and said infinity and beyond!
