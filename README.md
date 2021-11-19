@@ -1,1 +1,1 @@
-Yo mamma so fat, her stomach gets home 15 minutes before she does.
+Yo mamma so fat God could not even lift her spirt
