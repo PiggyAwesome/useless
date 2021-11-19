@@ -1,1 +1,1 @@
-Yo mamma so fat when she walked across the street, someone said,"Hey, the wooly mammoths are back!!"
+Yo mamma is so fat when she fell in love, she broke it.
