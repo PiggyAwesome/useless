@@ -1,1 +1,1 @@
-Yo mamma so fat God could not even lift her spirt
+Yo mamma so fat that when she was born, she gave the hospital stretch marks.
