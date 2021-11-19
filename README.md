@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes swimming the whales start singing We are Family
+Yo mamma so fat that she fell over and rocked herself to sleep trying to get up
