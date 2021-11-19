@@ -1,1 +1,1 @@
-Yo mamma so fat she's on both sides the family
+Yo mamma so fat she's got more Chins than a Hong Kong phone book.
