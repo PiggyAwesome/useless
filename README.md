@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on the beach and Greenpeace threw her in.
+Yo mamma is so fat when she jumped in the air she got stuck
