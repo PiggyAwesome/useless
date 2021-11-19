@@ -1,1 +1,1 @@
-Yo mamma so fat Bill Gates couldn't pay for her liposuction
+Yo mamma so fat, you could slap her butt and ride the waves.
