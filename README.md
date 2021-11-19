@@ -1,1 +1,1 @@
-Yo mamma so fat, she can't even jump to a conclusion.
+Yo mamma is so fat if she buys a fur coat, a species will be extinct.
