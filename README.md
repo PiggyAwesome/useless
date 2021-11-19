@@ -1,1 +1,1 @@
-Yo mamma is so fat people called her a wild hog
+Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
