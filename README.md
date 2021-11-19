@@ -1,1 +1,1 @@
-Yo mamma is so fat that she uses the Great Wall of China as a belt
+Yo mamma so fat she died
