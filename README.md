@@ -1,1 +1,1 @@
-Yo mamma so fat when she saw a bus she said come back Twinkie
+Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
