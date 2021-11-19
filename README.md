@@ -1,1 +1,1 @@
-Yo mamma so fat when she got hit by a bus she said who threw that rock
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
