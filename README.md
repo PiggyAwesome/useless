@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on a rainbow and popped Skittles out
+Yo mamma so fat when she fell no one laughed but the ground started cracking up
