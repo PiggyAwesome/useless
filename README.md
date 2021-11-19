@@ -1,1 +1,1 @@
-Yo mamma so fat when she burped New Orlean thought Katrina came back to finish the job
+Yo mamma so fat, her stomach gets home 15 minutes before she does.
