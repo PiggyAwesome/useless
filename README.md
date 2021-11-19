@@ -1,1 +1,1 @@
-Yo mamma is so fat when she fell in love, she broke it.
+Yo mamma so fat she got a parking ticket for standing at a crosswalk
