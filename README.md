@@ -1,1 +1,1 @@
-Yo mamma is so fat people called her a wild hog
+Yo mamma so fat she's on both sides the family
