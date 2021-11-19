@@ -1,1 +1,1 @@
-Yo mamma so fat she fell in a whirlpool and got stuck
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
