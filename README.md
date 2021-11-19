@@ -1,1 +1,1 @@
-Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
+Yo mamma so fat you have to grease the door frame and hold a twinkie on the other side just to get her through.
