@@ -1,1 +1,1 @@
-Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
+Yo mamma so fat she sat on a quarter and a booger shot out of George Washington's nose.
