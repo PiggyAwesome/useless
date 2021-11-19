@@ -1,1 +1,1 @@
-Yo mamma so fat she died
+Yo mamma so fat when God said let it be light he told your mamma to move
