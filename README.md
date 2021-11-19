@@ -1,1 +1,1 @@
-Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
+Yo mamma so fat her beeper went off and people thought she was backing up.
