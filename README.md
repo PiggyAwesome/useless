@@ -1,1 +1,1 @@
-Yo mamma is so fat every time she sits down they add another country to the map
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
