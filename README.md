@@ -1,1 +1,1 @@
-Yo mamma is so fat people called her a wild hog
+Yo mamma so fat Bill Gates couldn't pay for her liposuction
