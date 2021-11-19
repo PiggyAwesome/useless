@@ -1,1 +1,1 @@
-Yo mamma is so fat when she farted it was the end of the world
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
