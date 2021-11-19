@@ -1,1 +1,1 @@
-Yo mamma is so fat people called her a wild hog
+Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
