@@ -1,1 +1,1 @@
-Yo mamma so fat, her stomach gets home 15 minutes before she does.
+Yo mamma so fat when she walked across the street, someone said,"Hey, the wooly mammoths are back!!"
