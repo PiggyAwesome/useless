@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on a quarter and a booger shot out of George Washington's nose.
+Yo mamma so fat she's on both sides the family
