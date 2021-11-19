@@ -1,1 +1,1 @@
-Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
+Yo mamma is so fat that she uses the Great Wall of China as a belt
