@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on a Nintendo Gamecube and turned it into a Gameboy
+Yo mamma is so fat when she fell in love, she broke it.
