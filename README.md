@@ -1,1 +1,1 @@
-Yo mamma is so fat were in her right now
+Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
