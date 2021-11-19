@@ -1,1 +1,1 @@
-Yo mamma so fat she wore a yellow raincoat and people yelled Taxi!
+Yo mamma is so fat when she farted it was the end of the world
