@@ -1,1 +1,1 @@
-Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
+Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
