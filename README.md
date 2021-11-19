@@ -1,1 +1,1 @@
-Yo mamma so fat the last time she saw 90210 was on a scale
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
