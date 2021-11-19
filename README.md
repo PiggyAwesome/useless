@@ -1,1 +1,1 @@
-Yo mamma so fat I had to take a train and two buses just to get on the her good side.
+Yo mamma so fat when she went to McDonalds they offered her a group discount
