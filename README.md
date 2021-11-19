@@ -1,1 +1,1 @@
-Yo mamma so fat she got a parking ticket for standing at a crosswalk
+Yo mamma so fat she's got more Chins than a Hong Kong phone book.
