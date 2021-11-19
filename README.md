@@ -1,1 +1,1 @@
-Yo mamma so fat, it takes her two trips to haul ass
+Yo mamma so fat that when she died, she ended world hunger.
