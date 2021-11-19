@@ -1,1 +1,1 @@
-Yo mamma so fat she don't fit in this joke
+Yo mamma so fat the last time she saw 90210 was on a scale
