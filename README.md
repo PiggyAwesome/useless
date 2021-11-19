@@ -1,1 +1,1 @@
-Yo mamma so fat when she burped New Orlean thought Katrina came back to finish the job
+Yo mamma is so fat when she jumped in the air she got stuck
