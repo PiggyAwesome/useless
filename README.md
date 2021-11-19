@@ -1,1 +1,1 @@
-Yo mamma is so fat every time she sits down they add another country to the map
+Yo mamma so fat she stepped on the scale and it said one person at the time
