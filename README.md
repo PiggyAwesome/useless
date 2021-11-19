@@ -1,1 +1,1 @@
-Yo mamma so fat she broke your family tree.
+Yo mamma is so fat when she farted it was the end of the world
