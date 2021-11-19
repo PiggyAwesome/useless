@@ -1,1 +1,1 @@
-Yo mamma so fat when she tossed in her sleep she woke up in another time zone
+Yo mamma is so fat people called her a wild hog
