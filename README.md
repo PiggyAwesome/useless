@@ -1,1 +1,1 @@
-Yo mamma so fat, it takes her two trips to haul ass
+Yo mamma is so fat she has to write an apology letter to Japan
