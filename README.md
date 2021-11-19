@@ -1,1 +1,1 @@
-Yo mamma is so fat when she fell in love, she broke it.
+Yo mamma is so fat she can be my bear
