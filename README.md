@@ -1,1 +1,1 @@
-Yo mamma so fat she don't fit in this joke
+Yo mamma so fat when she dances at a concert the whole band skips.
