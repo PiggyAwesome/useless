@@ -1,1 +1,1 @@
-Yo mamma is so fat, her diet pills say M & M
+Yo mamma so fat, her stomach gets home 15 minutes before she does.
