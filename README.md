@@ -1,1 +1,1 @@
-Yo mamma so fat her IUD picks up radio free Europe
+Yo mamma so fat she broke your family tree.
