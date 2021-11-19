@@ -1,1 +1,1 @@
-Yo mamma so fat she's on both sides the family
+Yo mamma so fat that when she sits around the house, she sits around the house.
