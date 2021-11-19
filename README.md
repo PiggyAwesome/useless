@@ -1,1 +1,1 @@
-Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
