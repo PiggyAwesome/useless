@@ -1,1 +1,1 @@
-Yo mamma so fat she don't fit in this joke
+Yo mamma so fat when she stepped on the scale it came up with my phone number
