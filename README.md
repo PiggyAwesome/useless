@@ -1,1 +1,1 @@
-Yo mamma so fat her beeper went off and people thought she was backing up.
+Yo mamma so fat that when she walked by the TV set I missed 3 seasons of Laguna Beach
