@@ -1,1 +1,1 @@
-Yo mamma so fat not even a Twinkie would get her off the couch, even while a crane tries to help her
+Yo mamma is so fat, Fat Albert was even scared of her.
