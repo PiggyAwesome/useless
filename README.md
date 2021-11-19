@@ -1,1 +1,1 @@
-Yo mamma so fat, I got lost after running around her.
+Yo mamma so fat when she saw a bus she said come back Twinkie
