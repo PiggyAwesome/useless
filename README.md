@@ -1,1 +1,1 @@
-Yo mamma so fat she doesn't need the internet; she's already world wide
+Yo mamma so fat that when she sits around the house, she sits around the house.
