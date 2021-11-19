@@ -1,1 +1,1 @@
-Yo mamma so fat she died
+Yo mamma is so fat she has to write an apology letter to Japan
