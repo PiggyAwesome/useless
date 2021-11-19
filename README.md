@@ -1,1 +1,1 @@
-Yo mamma so fat when she tossed in her sleep she woke up in another time zone
+Yo mamma so fat they changed one size fits all to one size fits most
