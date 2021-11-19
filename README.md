@@ -1,1 +1,1 @@
-Yo mamma so fat not even Dora can explore her
+Yo mamma so fat I took a picture of her last Christmas and its still printing
