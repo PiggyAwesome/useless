@@ -1,1 +1,1 @@
-Yo mamma so fat Mount Everest tried to climb her
+Yo mamma so fat, I got lost after running around her.
