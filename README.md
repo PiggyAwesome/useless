@@ -1,1 +1,1 @@
-Yo mamma so fat that when she was born, she gave the hospital stretch marks.
+Yo mamma so fat when she walked across the street, someone said,"Hey, the wooly mammoths are back!!"
