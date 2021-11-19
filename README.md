@@ -1,1 +1,1 @@
-Yo mamma so fat that when she was born, she gave the hospital stretch marks.
+Yo mamma is so fat a truck hit her and she said, Hey who threw that rock?
