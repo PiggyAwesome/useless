@@ -1,1 +1,1 @@
-Yo mamma so fat when God said let it be light he told your mamma to move
+Yo mamma is so fat that the recursive function calculating her mass causes a stack overflow
