@@ -1,1 +1,1 @@
-Yo mamma so fat when she saw a bus she said come back Twinkie
+Yo mamma so fat when she got hit by a bus she said who threw that rock
