@@ -1,1 +1,1 @@
-Yo mamma so fat she died
+Yo mamma so fat she sat on the beach and Greenpeace threw her in.
