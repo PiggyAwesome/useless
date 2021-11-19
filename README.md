@@ -1,1 +1,1 @@
-Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
+Yo mamma so fat when she stepped on a scale Buzz Lightyear came out and said infinity and beyond!
