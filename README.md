@@ -1,1 +1,1 @@
-Yo mamma so fat they changed one size fits all to one size fits most
+Yo mamma so fat when she went to McDonalds they offered her a group discount
