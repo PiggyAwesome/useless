@@ -1,1 +1,1 @@
-Yo mamma is so fat people thought her butt hole was a black hole.
+Yo mamma so fat that when she died she broke the stairway to heaven
