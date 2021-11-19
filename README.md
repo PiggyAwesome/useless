@@ -1,1 +1,1 @@
-Yo mamma so fat she died
+Yo mamma is so fat people called her a wild hog
