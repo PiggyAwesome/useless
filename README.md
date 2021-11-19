@@ -1,1 +1,1 @@
-Yo mamma so fat, I got lost after running around her.
+Yo mamma so fat Bill Gates couldn't pay for her liposuction
