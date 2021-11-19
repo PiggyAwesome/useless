@@ -1,1 +1,1 @@
-Yo mamma so fat you have to grease the door frame and hold a twinkie on the other side just to get her through.
+Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
