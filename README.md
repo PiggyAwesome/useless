@@ -1,1 +1,1 @@
-Yo mamma so fat, that the Twinkies revolve around her.
+Yo mamma so fat, I got lost after running around her.
