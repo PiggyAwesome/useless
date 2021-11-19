@@ -1,1 +1,1 @@
-Yo mamma so fat when she fell no one laughed but the ground started cracking up
+Yo mamma so fat she wore a yellow raincoat and people yelled Taxi!
