@@ -1,1 +1,1 @@
-Yo mamma so fat I had to take a train and two buses just to get on the her good side.
+Yo mamma so fat that when she died, she ended world hunger.
