@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to the movies she sat by everybody
+Yo mamma is so fat every time she tries to hide she is hiding that object that she is trying to hide by
