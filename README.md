@@ -1,1 +1,1 @@
-Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
+Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
