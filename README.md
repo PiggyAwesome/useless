@@ -1,1 +1,1 @@
-Yo mamma so fat everytime she turns around its her birthday
+Yo mamma so fat, her stomach gets home 15 minutes before she does.
