@@ -1,1 +1,1 @@
-Yo mamma is so fat that the recursive function calculating her mass causes a stack overflow
+Yo mamma is so fat when she jumped in the air she got stuck
