@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died, she ended world hunger.
+Yo mamma so fat when she goes swimming the whales start singing We are Family
