@@ -1,1 +1,1 @@
-Yo mamma so fat she doesn't need the internet; she's already world wide
+Yo mamma so fat Mount Everest tried to climb her
