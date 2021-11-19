@@ -1,1 +1,1 @@
-Yo mamma so fat when she gets cut she bleeds gravy
+Yo mamma so fat when she made a YouTube account the entire network crashed.
