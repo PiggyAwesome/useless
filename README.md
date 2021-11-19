@@ -1,1 +1,1 @@
-Yo mamma so fat she wore a yellow raincoat and people yelled Taxi!
+Yo mamma is so fat, that when she steps on a scale it says to be continued.
