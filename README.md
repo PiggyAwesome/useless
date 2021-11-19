@@ -1,1 +1,1 @@
-Yo mamma so fat she went to japan and Godzilla said DAMN and ran away.
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
