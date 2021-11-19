@@ -1,1 +1,1 @@
-Yo mamma so fat her nickname is just DAMN
+Yo mamma is so fat people thought her butt hole was a black hole.
