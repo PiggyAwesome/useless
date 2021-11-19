@@ -1,1 +1,1 @@
-Yo mamma so fat she fell in a whirlpool and got stuck
+Yo mamma is so fat her blood type is Ragu
