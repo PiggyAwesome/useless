@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died, she ended world hunger.
+Yo mamma is so fat every time she tries to hide she is hiding that object that she is trying to hide by
