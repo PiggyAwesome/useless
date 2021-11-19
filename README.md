@@ -1,1 +1,1 @@
-Yo mamma is so fat her blood type is Ragu
+Yo mamma so fat she doesn't need the internet; she's already world wide
