@@ -1,1 +1,1 @@
-Yo mamma so fat I had to take a train and two buses just to get on the her good side.
+Yo mamma so fat she got a parking ticket for standing at a crosswalk
