@@ -1,1 +1,1 @@
-Yo mamma so fat when she made a YouTube account the entire network crashed.
+Yo mamma so fat her beeper went off and people thought she was backing up.
