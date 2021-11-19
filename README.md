@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died, she ended world hunger.
+Yo mamma is so fat, Fat Albert was even scared of her.
