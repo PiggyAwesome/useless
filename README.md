@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on the beach and Greenpeace threw her in.
+Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
