@@ -1,1 +1,1 @@
-Yo mamma is so fat if she buys a fur coat, a species will be extinct.
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
