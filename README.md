@@ -1,1 +1,1 @@
-Yo mamma so fat when she walked across the street, someone said,"Hey, the wooly mammoths are back!!"
+Yo mamma so fat when she dances at a concert the whole band skips.
