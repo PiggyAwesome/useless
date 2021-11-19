@@ -1,1 +1,1 @@
-Yo mamma so fat it aint funny
+Yo mamma so fat she wore a yellow raincoat and people yelled Taxi!
