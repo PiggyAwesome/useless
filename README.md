@@ -1,1 +1,1 @@
-Yo mamma so fat Mount Everest tried to climb her
+Yo mamma so fat when she fell no one laughed but the ground started cracking up
