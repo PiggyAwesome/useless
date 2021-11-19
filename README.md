@@ -1,1 +1,1 @@
-Yo mamma so fat she was diagnosed with flesh eating bacteria and the doctor gave her 87 years to live
+Yo mamma so fat, it takes her two trips to haul ass
