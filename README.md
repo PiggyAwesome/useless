@@ -1,1 +1,1 @@
-Yo mamma so fat when she got hit by a bus she said who threw that rock
+Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
