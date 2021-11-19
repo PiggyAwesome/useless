@@ -1,1 +1,1 @@
-Yo mamma so fat she has more rolls than a bakery
+Yo mamma is so fat that Weight Watchers said I give up
