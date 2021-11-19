@@ -1,1 +1,1 @@
-Yo mamma is so fat, Fat Albert was even scared of her.
+Yo mamma so fat Bill Gates couldn't pay for her liposuction
