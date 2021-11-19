@@ -1,1 +1,1 @@
-Yo mamma is so fat, Fat Albert was even scared of her.
+Yo mamma so fat when she went to her wedding the people sang the song "here comes the bride so fat and wide"
