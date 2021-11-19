@@ -1,1 +1,1 @@
-Yo mamma so fat the only alphabet she knows is her KFC's
+Yo mamma is so fat that she uses the Great Wall of China as a belt
