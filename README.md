@@ -1,1 +1,1 @@
-Yo mamma so fat she leaves footsteps in concrete
+Yo mamma is so fat, Fat Albert was even scared of her.
