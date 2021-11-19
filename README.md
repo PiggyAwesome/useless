@@ -1,1 +1,1 @@
-Yo mamma so fat Bill Gates couldn't pay for her liposuction
+Yo mamma is so fat every time she tries to hide she is hiding that object that she is trying to hide by
