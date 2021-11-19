@@ -1,1 +1,1 @@
-Yo mamma so fat when she made a YouTube account the entire network crashed.
+Yo mamma so fat it aint funny
