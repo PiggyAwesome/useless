@@ -1,1 +1,1 @@
-Yo mamma so fat her beeper went off and people thought she was backing up.
+Yo mamma is so fat that Weight Watchers said I give up
