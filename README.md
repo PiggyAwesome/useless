@@ -1,1 +1,1 @@
-Yo mamma so fat she has more rolls than a bakery
+Yo mamma so fat she went to japan and Godzilla said DAMN and ran away.
