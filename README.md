@@ -1,1 +1,1 @@
-Yo mamma so fat everytime she turns around its her birthday
+Yo mamma is so fat when she farted it was the end of the world
