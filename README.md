@@ -1,1 +1,1 @@
-Yo mamma is so fat, that when she steps on a scale it says to be continued.
+Yo mamma so fat that when she sits around the house, she sits around the house.
