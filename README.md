@@ -1,1 +1,1 @@
-Yo mamma so fat she don't fit in this joke
+Yo mamma so fat that when she died she broke the stairway to heaven
