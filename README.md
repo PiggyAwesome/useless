@@ -1,1 +1,1 @@
-Yo mamma so fat that she fell over and rocked herself to sleep trying to get up
+Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
