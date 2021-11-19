@@ -1,1 +1,1 @@
-Yo mamma so fat Bill Gates couldn't pay for her liposuction
+Yo mamma is so fat when she farted it was the end of the world
