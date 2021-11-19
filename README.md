@@ -1,1 +1,1 @@
-Yo mamma so fat everytime she turns around its her birthday
+Yo mamma so fat that when she walked by the TV set I missed 3 seasons of Laguna Beach
