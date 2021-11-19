@@ -1,1 +1,1 @@
-Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
+Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
