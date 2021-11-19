@@ -1,1 +1,1 @@
-Yo mamma so fat Bill Gates couldn't pay for her liposuction
+Yo mamma so fat she wore a yellow raincoat and people yelled Taxi!
