@@ -1,1 +1,1 @@
-Yo mamma so fat people keep pushing her in the water at the beach so she won't die
+Yo mamma so fat the last time she saw 90210 was on a scale
