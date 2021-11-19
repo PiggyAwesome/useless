@@ -1,1 +1,1 @@
-Yo mamma is so fat she can be my bear
+Yo mamma is so fat that she uses the Great Wall of China as a belt
