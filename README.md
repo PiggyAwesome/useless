@@ -1,1 +1,1 @@
-Yo mamma so fat when she stepped on the scale it came up with my phone number
+Yo mamma so fat she wore a yellow raincoat and people yelled Taxi!
