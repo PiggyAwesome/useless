@@ -1,1 +1,1 @@
-Yo mamma is so fat when she farted it was the end of the world
+Yo mamma is so fat she has to write an apology letter to Japan
