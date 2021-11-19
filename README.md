@@ -1,1 +1,1 @@
-Yo mamma so fat that she fell over and rocked herself to sleep trying to get up
+Yo mamma so fat God could not even lift her spirt
