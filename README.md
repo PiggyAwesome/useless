@@ -1,1 +1,1 @@
-Yo mamma so fat, it takes her two trips to haul ass
+Yo mamma so fat, her stomach gets home 15 minutes before she does.
