@@ -1,1 +1,1 @@
-Yo mamma so fat when she got hit by a bus she said who threw that rock
+Yo mamma so fat people keep pushing her in the water at the beach so she won't die
