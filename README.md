@@ -1,1 +1,1 @@
-Yo mamma so fat when she stepped on a scale Buzz Lightyear came out and said infinity and beyond!
+Yo mamma is so fat if she buys a fur coat, a species will be extinct.
