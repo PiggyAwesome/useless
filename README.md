@@ -1,1 +1,1 @@
-Yo mamma so fat, she can't even jump to a conclusion.
+Yo mamma is so fat that she uses the Great Wall of China as a belt
