@@ -1,1 +1,1 @@
-Yo mamma is so fat that Weight Watchers said I give up
+Yo mamma is so fat that the recursive function calculating her mass causes a stack overflow
