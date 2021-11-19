@@ -1,1 +1,1 @@
-Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
