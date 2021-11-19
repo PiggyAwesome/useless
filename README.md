@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes swimming the whales start singing We are Family
+Yo mamma is so fat when she fell in love, she broke it.
