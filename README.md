@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to McDonalds they offered her a group discount
+Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
