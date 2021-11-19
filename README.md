@@ -1,1 +1,1 @@
-Yo mamma is so fat, Fat Albert was even scared of her.
+Yo mamma is so fat, that when she steps on a scale it says to be continued.
