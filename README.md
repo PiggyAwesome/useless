@@ -1,1 +1,1 @@
-Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
+Yo mamma so fat, I got lost after running around her.
