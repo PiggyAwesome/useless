@@ -1,1 +1,1 @@
-Yo mamma so fat she don't fit in this joke
+Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
