@@ -1,1 +1,1 @@
-Yo mamma so fat she's on both sides the family
+Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
