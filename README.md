@@ -1,1 +1,1 @@
-Yo mamma is so fat every time she sits down they add another country to the map
+Yo mamma so fat, I got lost after running around her.
