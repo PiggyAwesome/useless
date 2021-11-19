@@ -1,1 +1,1 @@
-Yo mamma so fat that when she walked by the TV set I missed 3 seasons of Laguna Beach
+Yo mamma is so fat her blood type is Ragu
