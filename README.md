@@ -1,1 +1,1 @@
-Yo mamma is so fat when I said release the Kraken, your mom came
+Yo mamma so fat that when she was born, she gave the hospital stretch marks.
