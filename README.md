@@ -1,1 +1,1 @@
-Yo mamma is so fat, her diet pills say M & M
+Yo mamma so fat, you could slap her butt and ride the waves.
