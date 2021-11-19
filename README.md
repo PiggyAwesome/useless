@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to the circus the little girl asked if she could ride the elephant
+Yo mamma so fat she stepped on the scale and it said one person at the time
