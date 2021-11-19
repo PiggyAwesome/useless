@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on Wal-Mart and lowered the prices
+Yo mamma so fat when she walked across the street, someone said,"Hey, the wooly mammoths are back!!"
