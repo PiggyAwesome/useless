@@ -1,1 +1,1 @@
-Yo mamma so fat, I got lost after running around her.
+Yo mamma is so fat she has to write an apology letter to Japan
