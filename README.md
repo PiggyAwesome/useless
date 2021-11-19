@@ -1,1 +1,1 @@
-Yo mamma so fat she's got more Chins than a Hong Kong phone book.
+Yo mamma so fat that when she walked by the TV set I missed 3 seasons of Laguna Beach
