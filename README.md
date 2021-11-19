@@ -1,1 +1,1 @@
-Yo mamma so fat when she saw a bus she said come back Twinkie
+Yo mamma so fat she went to japan and Godzilla said DAMN and ran away.
