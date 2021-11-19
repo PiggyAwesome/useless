@@ -1,1 +1,1 @@
-Yo mamma so fat Bill Gates couldn't pay for her liposuction
+Yo mamma so fat I took a picture of her last Christmas and its still printing
