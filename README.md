@@ -1,1 +1,1 @@
-Yo mamma so fat when she burped New Orlean thought Katrina came back to finish the job
+Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
