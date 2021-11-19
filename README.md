@@ -1,1 +1,1 @@
-Yo mamma so fat her nickname is just DAMN
+Yo mamma so fat when she stepped on a scale Buzz Lightyear came out and said infinity and beyond!
