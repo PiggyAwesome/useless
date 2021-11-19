@@ -1,1 +1,1 @@
-Yo mamma so fat when she jogs she leaves pot holes
+Yo mamma so fat her IUD picks up radio free Europe
