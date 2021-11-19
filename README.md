@@ -1,1 +1,1 @@
-Yo mamma so fat that when she was born, she gave the hospital stretch marks.
+Yo mamma so fat, it takes her two trips to haul ass
