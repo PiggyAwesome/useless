@@ -1,1 +1,1 @@
-Yo mamma so fat people keep pushing her in the water at the beach so she won't die
+Yo mamma so fat she doesn't need the internet; she's already world wide
