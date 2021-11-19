@@ -1,1 +1,1 @@
-Yo mamma so fat her nickname is just DAMN
+Yo mamma is so fat that Weight Watchers said I give up
