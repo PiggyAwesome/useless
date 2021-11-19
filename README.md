@@ -1,1 +1,1 @@
-Yo mamma is so fat she has to write an apology letter to Japan
+Yo mamma is so fat that Weight Watchers said I give up
