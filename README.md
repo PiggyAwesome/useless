@@ -1,1 +1,1 @@
-Yo mamma so fat Mount Everest tried to climb her
+Yo mamma so fat she went to japan and Godzilla said DAMN and ran away.
