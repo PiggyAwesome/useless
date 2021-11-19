@@ -1,1 +1,1 @@
-Yo mamma is so fat that Weight Watchers said I give up
+Yo mamma so fat she sat on a rainbow and popped Skittles out
