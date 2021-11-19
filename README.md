@@ -1,1 +1,1 @@
-Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
+Yo mamma so fat the last time she saw 90210 was on a scale
