@@ -1,1 +1,1 @@
-Yo mamma is so fat people called her a wild hog
+Yo mamma is so fat a truck hit her and she said, Hey who threw that rock?
