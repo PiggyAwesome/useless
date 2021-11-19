@@ -1,1 +1,1 @@
-Yo mamma is so fat her blood type is Ragu
+Yo mamma so fat she went to japan and Godzilla said DAMN and ran away.
