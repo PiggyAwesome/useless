@@ -1,1 +1,1 @@
-Yo mamma so fat they changed one size fits all to one size fits most
+Yo mamma so fat when she stepped on the scale it came up with my phone number
