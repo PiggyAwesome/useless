@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to McDonalds they offered her a group discount
+Yo mamma so fat she stepped on a Nintendo Gamecube and turned it into a Gameboy
