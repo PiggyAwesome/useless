@@ -1,1 +1,1 @@
-Yo mamma so fat everytime she turns around its her birthday
+Yo mamma is so fat her blood type is Ragu
