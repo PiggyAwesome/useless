@@ -1,1 +1,1 @@
-Yo mamma so fat when she stepped on the scale it came up with my phone number
+Yo mamma so fat she sat on a quarter and a booger shot out of George Washington's nose.
