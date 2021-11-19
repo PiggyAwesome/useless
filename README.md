@@ -1,1 +1,1 @@
-Yo mamma so fat not even Dora can explore her
+Yo mamma so fat she sat on the beach and Greenpeace threw her in.
