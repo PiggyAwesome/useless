@@ -1,1 +1,1 @@
-Yo mamma so fat when she stepped on a scale Buzz Lightyear came out and said infinity and beyond!
+Yo mamma is so fat every time she tries to hide she is hiding that object that she is trying to hide by
