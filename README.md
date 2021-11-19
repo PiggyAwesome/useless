@@ -1,1 +1,1 @@
-Yo mamma so fat she has more rolls than a bakery
+Yo mamma so fat she got a parking ticket for standing at a crosswalk
