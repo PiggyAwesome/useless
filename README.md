@@ -1,1 +1,1 @@
-Yo mamma so fat when she walked across the street, someone said,"Hey, the wooly mammoths are back!!"
+Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
