@@ -1,1 +1,1 @@
-Yo mamma so fat when she saw a bus she said come back Twinkie
+Yo mamma so fat, her stomach gets home 15 minutes before she does.
