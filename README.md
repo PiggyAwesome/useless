@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on a rainbow and popped Skittles out
+Yo mamma so fat the only alphabet she knows is her KFC's
