@@ -1,1 +1,1 @@
-Yo mamma so fat she got a parking ticket for standing at a crosswalk
+Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
