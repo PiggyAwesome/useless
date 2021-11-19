@@ -1,1 +1,1 @@
-Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
+Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
