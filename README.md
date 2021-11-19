@@ -1,1 +1,1 @@
-Yo mamma is so fat when she jumped in the air she got stuck
+Yo mamma so fat when she went to the movies she sat by everybody
