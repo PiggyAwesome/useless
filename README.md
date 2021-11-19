@@ -1,1 +1,1 @@
-Yo mamma so fat she broke your family tree.
+Yo mamma so fat when she tossed in her sleep she woke up in another time zone
