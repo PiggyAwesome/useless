@@ -1,1 +1,1 @@
-Yo mamma so fat the only alphabet she knows is her KFC's
+Yo mamma so fat when she stepped on the scale it came up with my phone number
