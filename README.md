@@ -1,1 +1,1 @@
-Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
+Yo mamma so fat, she can't even jump to a conclusion.
