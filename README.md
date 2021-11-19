@@ -1,1 +1,1 @@
-Yo mamma is so fat she can be my bear
+Yo mamma is so fat people called her a wild hog
