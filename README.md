@@ -1,1 +1,1 @@
-Yo mamma so fat she don't fit in this joke
+Yo mamma is so fat, that when she steps on a scale it says to be continued.
