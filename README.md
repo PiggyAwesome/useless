@@ -1,1 +1,1 @@
-Yo mamma so fat they changed one size fits all to one size fits most
+Yo mamma so fat she don't fit in this joke
