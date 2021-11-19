@@ -1,1 +1,1 @@
-Yo mamma so fat when she jogs she leaves pot holes
+Yo mamma so fat that she fell over and rocked herself to sleep trying to get up
