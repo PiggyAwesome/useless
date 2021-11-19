@@ -1,1 +1,1 @@
-Yo mamma so fat, she can't even jump to a conclusion.
+Yo mamma so fat God could not even lift her spirt
