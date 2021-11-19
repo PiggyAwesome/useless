@@ -1,1 +1,1 @@
-Yo mamma so fat her IUD picks up radio free Europe
+Yo mamma so fat that when she died, she ended world hunger.
