@@ -1,1 +1,1 @@
-Yo mamma is so fat that Weight Watchers said I give up
+Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
