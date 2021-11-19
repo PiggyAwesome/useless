@@ -1,1 +1,1 @@
-Yo mamma is so fat she has to write an apology letter to Japan
+Yo mamma so fat her nickname is just DAMN
