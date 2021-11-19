@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on Wal-Mart and lowered the prices
+Yo mamma so fat when she was standing on the corner a cop came along and told her to break it up
