@@ -1,1 +1,1 @@
-Yo mamma so fat everytime she turns around its her birthday
+Yo mamma so fat God could not even lift her spirt
