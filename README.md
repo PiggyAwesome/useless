@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on the scale and it said one person at the time
+Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
