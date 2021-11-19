@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on a Nintendo Gamecube and turned it into a Gameboy
+Yo mamma so fat she don't fit in this joke
