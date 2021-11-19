@@ -1,1 +1,1 @@
-Yo mamma so fat her beeper went off and people thought she was backing up.
+Yo mamma so fat she got a parking ticket for standing at a crosswalk
