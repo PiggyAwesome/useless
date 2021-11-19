@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to the movies she sat by everybody
+Yo mamma so fat when she stepped on a scale Buzz Lightyear came out and said infinity and beyond!
