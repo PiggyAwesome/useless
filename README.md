@@ -1,1 +1,1 @@
-Yo mamma is so fat every time she tries to hide she is hiding that object that she is trying to hide by
+Yo mamma so fat people keep pushing her in the water at the beach so she won't die
