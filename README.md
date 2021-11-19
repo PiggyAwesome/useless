@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died she broke the stairway to heaven
+Yo mamma so fat she stepped on a Nintendo Gamecube and turned it into a Gameboy
