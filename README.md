@@ -1,1 +1,1 @@
-Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
+Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
