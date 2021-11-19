@@ -1,1 +1,1 @@
-Yo mamma so fat Bill Gates couldn't pay for her liposuction
+Yo mamma is so fat she has to write an apology letter to Japan
