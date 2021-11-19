@@ -1,1 +1,1 @@
-Yo mamma so fat when she saw a bus she said come back Twinkie
+Yo mamma so fat the only alphabet she knows is her KFC's
