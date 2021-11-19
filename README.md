@@ -1,1 +1,1 @@
-Yo mamma so fat she fell in a whirlpool and got stuck
+Yo mamma so fat she's on both sides the family
