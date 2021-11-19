@@ -1,1 +1,1 @@
-Yo mamma so fat, her stomach gets home 15 minutes before she does.
+Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
