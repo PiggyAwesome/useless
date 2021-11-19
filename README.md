@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on the scale and it said one person at the time
+Yo mamma so fat, it takes her two trips to haul ass
