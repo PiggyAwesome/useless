@@ -1,1 +1,1 @@
-Yo mamma so fat the only alphabet she knows is her KFC's
+Yo mamma so fat she doesn't need the internet; she's already world wide
