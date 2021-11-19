@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died she broke the stairway to heaven
+Yo mamma so fat Bill Gates couldn't pay for her liposuction
