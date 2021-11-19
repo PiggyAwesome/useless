@@ -1,1 +1,1 @@
-Yo mamma so fat God could not even lift her spirt
+Yo mamma so fat when she got hit by a bus she said who threw that rock
