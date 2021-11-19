@@ -1,1 +1,1 @@
-Yo mamma is so fat when she farted it was the end of the world
+Yo mamma so fat she stepped on a Nintendo Gamecube and turned it into a Gameboy
