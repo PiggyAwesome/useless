@@ -1,1 +1,1 @@
-Yo mamma so fat when God said let it be light he told your mamma to move
+Yo mamma so fat when she fell no one laughed but the ground started cracking up
