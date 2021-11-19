@@ -1,1 +1,1 @@
-Yo mamma so fat her IUD picks up radio free Europe
+Yo mamma so fat when she went to the movies she sat by everybody
