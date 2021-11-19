@@ -1,1 +1,1 @@
-Yo mamma so fat not even Dora can explore her
+Yo mamma so fat when she made a YouTube account the entire network crashed.
