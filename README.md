@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on a Nintendo Gamecube and turned it into a Gameboy
+Yo mamma so fat that she fell over and rocked herself to sleep trying to get up
