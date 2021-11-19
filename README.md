@@ -1,1 +1,1 @@
-Yo mamma is so fat she can be my bear
+Yo mamma so fat, when she entered a fat contest, she came in first, second, and third.
