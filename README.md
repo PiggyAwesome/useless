@@ -1,1 +1,1 @@
-Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
+Yo mamma so fat when she plays hop scotch she goes Chicago, New York, L.A.
