@@ -1,1 +1,1 @@
-Yo mamma so fat when she stepped on the scale it came up with my phone number
+Yo mamma so fat when she tossed in her sleep she woke up in another time zone
