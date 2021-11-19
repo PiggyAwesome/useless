@@ -1,1 +1,1 @@
-Yo mamma is so fat that on halloween she says trick or meatloaf
+Yo mamma is so fat, that when she steps on a scale it says to be continued.
