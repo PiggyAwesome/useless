@@ -1,1 +1,1 @@
-Yo mamma so fat she stepped on the scale and it said one person at the time
+Yo mamma so fat I had to take a train and two buses just to get on the her good side.
