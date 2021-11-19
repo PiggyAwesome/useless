@@ -1,1 +1,1 @@
-Yo mamma so fat it aint funny
+Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
