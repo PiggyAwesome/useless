@@ -1,1 +1,1 @@
-Yo mamma so fat people keep pushing her in the water at the beach so she won't die
+Yo mamma so fat that when she died, she ended world hunger.
