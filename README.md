@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes swimming the whales start singing We are Family
+Yo mamma so fat she stepped on the scale and it said one person at the time
