@@ -1,1 +1,1 @@
-Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
+Yo mamma so fat when she saw a bus she said come back Twinkie
