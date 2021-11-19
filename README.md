@@ -1,1 +1,1 @@
-Yo mamma so fat that when she died, she ended world hunger.
+Yo mamma so fat she left the house in high heels and when she came back she had on flipflops
