@@ -1,1 +1,1 @@
-Yo mamma so fat when she gets cut she bleeds gravy
+Yo mamma so fat she died
