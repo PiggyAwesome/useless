@@ -1,1 +1,1 @@
-Yo mamma is so fat every time she tries to hide she is hiding that object that she is trying to hide by
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
