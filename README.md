@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on a quarter and a booger shot out of George Washington's nose.
+Yo mamma so fat she doesn't need the internet; she's already world wide
