@@ -1,1 +1,1 @@
-Yo mamma so fat, you could slap her butt and ride the waves.
+Yo mamma so fat when she saw a bus she said come back Twinkie
