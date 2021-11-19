@@ -1,1 +1,1 @@
-Yo mamma so fat when God said let it be light he told your mamma to move
+Yo mamma is so fat when I killed her in Call of Duty I got a five kill scorestreak.
