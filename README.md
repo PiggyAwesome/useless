@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes camping the bears hide their food
+Yo mamma so fat that she fell over and rocked herself to sleep trying to get up
