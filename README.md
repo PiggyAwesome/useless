@@ -1,1 +1,1 @@
-Yo mamma is so fat you feed on her junk
+Yo mamma is so fat her blood type is Ragu
