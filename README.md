@@ -1,1 +1,1 @@
-Yo mamma so fat she sat on a rainbow and popped Skittles out
+Yo mamma is so fat when she fell in love, she broke it.
