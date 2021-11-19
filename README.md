@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes camping the bears hide their food
+Yo mamma so fat people keep pushing her in the water at the beach so she won't die
