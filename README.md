@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes camping the bears hide their food
+Yo mamma is so fat when she tried to go to McDonalds she tripped over Wendys and landed on Burger King
