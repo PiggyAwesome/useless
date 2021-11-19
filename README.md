@@ -1,1 +1,1 @@
-Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
+Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
