@@ -1,1 +1,1 @@
-Yo mamma so fat when God said let it be light he told your mamma to move
+Yo mamma so fat she sat on the beach and Greenpeace threw her in.
