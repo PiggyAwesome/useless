@@ -1,1 +1,1 @@
-Yo mamma so fat, you could slap her butt and ride the waves.
+Yo mamma so fat she's got more Chins than a Hong Kong phone book.
