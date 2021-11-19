@@ -1,1 +1,1 @@
-Yo mamma so fat she put on her lipstick with a paint-roller.
+Yo mamma so fat when she burped New Orlean thought Katrina came back to finish the job
