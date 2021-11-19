@@ -1,1 +1,1 @@
-Yo mamma so fat it aint funny
+Yo mamma so fat when she wears one of those X jackets, helicopters try to land on her.
