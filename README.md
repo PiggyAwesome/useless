@@ -1,1 +1,1 @@
-Yo mamma so fat she broke your family tree.
+Yo mamma so fat you have to grease the door frame and hold a twinkie on the other side just to get her through.
