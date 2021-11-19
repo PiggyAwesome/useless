@@ -1,1 +1,1 @@
-Yo mamma so fat when she dances at a concert the whole band skips.
+Yo mamma is so fat people called her a wild hog
