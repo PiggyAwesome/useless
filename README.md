@@ -1,1 +1,1 @@
-Yo mamma so fat when she wears one of those X jackets, helicopters try to land on her.
+Yo mamma so fat her IUD picks up radio free Europe
