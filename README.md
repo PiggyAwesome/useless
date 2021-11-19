@@ -1,1 +1,1 @@
-Yo mamma is so fat when she farted it was the end of the world
+Yo mamma so fat when she saw a bus she said come back Twinkie
