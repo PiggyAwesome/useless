@@ -1,1 +1,1 @@
-Yo mamma so fat when she goes swimming the whales start singing We are Family
+Yo mamma is so fat if she buys a fur coat, a species will be extinct.
