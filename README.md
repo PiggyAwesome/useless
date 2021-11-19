@@ -1,1 +1,1 @@
-Yo mamma is so fat you feed on her junk
+Yo mamma so fat the only alphabet she knows is her KFC's
