@@ -1,1 +1,1 @@
-Yo mamma so fat when she went to her wedding the people sang the song "here comes the bride so fat and wide"
+Yo mamma is so fat when she was walking on the street her belly button was sticking out everybody started saying, hey look a third nipple!
