@@ -1,1 +1,1 @@
-Yo mamma so fat I took a picture of her last Christmas and its still printing
+Yo mamma so fat when she went to her wedding the people sang the song "here comes the bride so fat and wide"
