@@ -1,1 +1,1 @@
-Yo mamma is so fat when I said release the Kraken, your mom came
+Yo mamma so fat, her shirts come in three sizes: Large, Extra Large, and OH MY GOD, IT'S COMING!
