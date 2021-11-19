@@ -1,1 +1,1 @@
-Yo mamma is so fat, she got arrested at the airport for ten pounds of crack
+Yo mamma so fat Bill Gates couldn't pay for her liposuction
